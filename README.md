@@ -1,5 +1,4 @@
 # hello-world
 kuay kuay kuay
 
-
-yed hear i sus na hee
+gu ma tum mai la isassssssss
